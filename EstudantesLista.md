@@ -1,3 +1,7 @@
-1 - Daniel Cardoso
-2- Matheus França
-3-Lara
+Daniel Cardoso
+Gustavo de Castro Nóbrega
+Matheus França
+Maxwell Lucas
+Mateus Vinicius
+Clarinha Linda
+Lara
