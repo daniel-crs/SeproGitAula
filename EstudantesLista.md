@@ -1,1 +1,2 @@
-1 - Daniel Cardoso
+Daniel Cardoso
+ Lara Magalhães
