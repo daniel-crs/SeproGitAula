@@ -4,3 +4,4 @@ Matheus França
 Maxwell Lucas
 Mateus Vinicius
 Clarinha Linda
+Lara
